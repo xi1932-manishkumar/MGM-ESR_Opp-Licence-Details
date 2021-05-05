@@ -1,0 +1,1 @@
+# MGM-ESR_Opp-Licence-Details
